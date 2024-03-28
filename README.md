@@ -12,4 +12,6 @@ Alors que les singes approchaient du **sommet**, ils réalisèrent que le fromag
 
 Pendant ce temps, le **pingouin** philosophe eut une illumination, comprenant que la véritable richesse résidait dans la paix intérieure et la compréhension de soi. Il partagea ses enseignements avec les flamants roses égocentriques, ouvrant ainsi la voie vers une harmonie nouvelle et profonde dans leur monde de fous.
 
-Ainsi, dans un monde où les poissons volaient, les nuages nageaient et les **singes** abandonnaient leur quête de fromage, la véritable aventure résidait dans la quête de la connaissance et de l'éveil spirituel.
+Ainsi, dans un *monde* où les poissons volaient, les nuages nageaient et les **singes** abandonnaient leur quête de fromage, la véritable aventure résidait dans la quête de la connaissance et de l'éveil spirituel.  
+
+Pas de fautes
