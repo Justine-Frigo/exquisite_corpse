@@ -14,4 +14,4 @@ Pendant ce temps, le **pingouin** philosophe eut une illumination, comprenant qu
 
 Ainsi, dans un *monde* où les poissons volaient, les nuages nageaient et les **singes** abandonnaient leur quête de fromage, la véritable aventure résidait dans la quête de la connaissance et de l'éveil spirituel.  
 
-Pas de fautes
+Pas de fautes.
